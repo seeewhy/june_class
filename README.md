@@ -1,1 +1,1 @@
-# june_class
+# june_class for the year
